@@ -8,7 +8,7 @@
 <p>dni int yada yada allat stuff,, + other info!! <img src="https://ranfren.neocities.org/art/year%20of%20the%20dog.gif"/</p>
 
 <p align="center">
-<img src="https://files.catbox.moe/rx9etk.gif"/><img src="https://files.catbox.moe/rx9etk.gif"/>
+<img src="https://files.catbox.moe/rx9etk.gif"/>
 <p align="center">
 
 <p align="center">
@@ -22,13 +22,13 @@ some of my special interests are coding/html, learning about marine life, and re
 <p align="center">
 
 <p align="center">
-<img src="https://files.catbox.moe/rx9etk.gif"/><img src="https://files.catbox.moe/rx9etk.gif"/>
+<img src="https://files.catbox.moe/rx9etk.gif"/>
 <p align="center">
 
 <h1>Where can i find you on ponytown!??!</h1>
 
 <p align="center">
-<img src="https://files.catbox.moe/rx9etk.gif"/><img src="https://files.catbox.moe/rx9etk.gif"/>
+<img src="https://files.catbox.moe/rx9etk.gif"/>
 <p align="center">
 
 <p align="center">
@@ -44,14 +44,14 @@ on the safe server in the homestuck area! the homestuck area on the safe server 
 <p align="center">
 
 <p align="center">
-<img src="https://files.catbox.moe/rx9etk.gif"/><img src="https://files.catbox.moe/rx9etk.gif"/>
+<img src="https://files.catbox.moe/rx9etk.gif"/>
 <p align="center">
 
 <h1>DNI / INT</h1>
 <p>side note: this is only my ponytown dni / int</p>
 
 <p align="center">
-<img src="https://files.catbox.moe/rx9etk.gif"/><img src="https://files.catbox.moe/rx9etk.gif"/>
+<img src="https://files.catbox.moe/rx9etk.gif"/>
 <p align="center">
 
 <p align="center">
@@ -63,7 +63,7 @@ on the safe server in the homestuck area! the homestuck area on the safe server 
 <p align="center">
 
 <p align="center">
-<img src="https://files.catbox.moe/rx9etk.gif"/><img src="https://files.catbox.moe/rx9etk.gif"/>
+<img src="https://files.catbox.moe/rx9etk.gif"/>
 <p align="center">
 
 

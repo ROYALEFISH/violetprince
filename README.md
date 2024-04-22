@@ -1,3 +1,6 @@
+
+
+
 <p align="center">
 <img src="https://files.catbox.moe/m4em8n.webp"/>
 <p align="center">
@@ -64,6 +67,14 @@ on the safe server in the homestuck area! the homestuck area on the safe server 
 
 <p align="center">
 <img src="https://files.catbox.moe/rx9etk.gif"/>
+<p align="center">
+
+<p align="center">
+<img src="https://files.catbox.moe/dg2iy0.gif"/> <img src="https://files.catbox.moe/rcenbk.gif"/>
+<p align="center">
+
+<p align="center">
+<img src="https://files.catbox.moe/k9mnrq.gif"/> <img src="https://files.catbox.moe/oaf05c.gif"/> <img src="https://files.catbox.moe/6f7c9m.gif"/> <img src="https://files.catbox.moe/0pvagu.gif"/> <img src="https://files.catbox.moe/mec5yt.webp"/> <img src="https://files.catbox.moe/oeyqpp.webp"/>
 <p align="center">
 
 

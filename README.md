@@ -18,7 +18,7 @@ as you can guess, i really like ranfren. this is because it is my <i>SPECIAL INT
 when it comes to general info about me, i am <b>17</b> bodily, transfem (she/they), and an <a href="https://mspaintadventures.fandom.com/wiki/Dirk_Strider">dirk</a> / <a href="https://mspaintadventures.fandom.com/wiki/Eridan_Ampora">eridan</a> splitroject. 
 <p align="center">
 <p align="center">
-some of my special interests are coding/html, learning about marine life, and researching cold cases (i love true crime). I also partake in drawing alot!
+some of my other special interests are coding/html, learning about marine life, and researching cold cases (i love true crime). I also partake in drawing alot!
 <p align="center">
 
 <p align="center">

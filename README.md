@@ -4,7 +4,7 @@
 
 --- 
 
-<h1>General ponytown info</h1>
+<h1> <img src="https://ranfren.neocities.org/art/smash.gif"/>General ponytown info <img src="https://ranfren.neocities.org/art/smash.gif"/> </h1>
 <p>dni int yada yada allat stuff,, + other info!! <img src="https://ranfren.neocities.org/art/year%20of%20the%20dog.gif"/</p>
 
 <p align="center">

@@ -39,7 +39,7 @@ on the safe server in the homestuck area! the homestuck area on the safe server 
 <p align="center">
 
 <p align="center">
-<img src="https://files.catbox.moe/x8fqe2.png"/>
+<img src="https://files.catbox.moe/b0lj3m.png"/>
 <p align="center">
 
 <p align="center">

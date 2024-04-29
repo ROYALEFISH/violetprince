@@ -7,12 +7,17 @@
 
 --- 
 
+
+
+
 <h1> General ponytown info <img src="https://ranfren.neocities.org/art/smash.gif"/> </h1>
 <p>dni int yada yada allat stuff,, + other info!! <img src="https://ranfren.neocities.org/art/year%20of%20the%20dog.gif"/</p>
 
 <p align="center">
 <img src="https://files.catbox.moe/rx9etk.gif"/>
 <p align="center">
+
+　　　　　　　　　　　　　　　　　　　　　　　　　　　  　![](https://komarev.com/ghpvc/?username=violetprince&color=e00a97)
 
 <p align="center">
 as you can guess, i really like ranfren. this is because it is my <i>SPECIAL INTEREST</i> and it brings me <i>COMFORT.</i> if you dont fw this aspect of me then feel free to <b>not</b> interact.
